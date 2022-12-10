@@ -1,9 +1,9 @@
 
 
 # MELHORES SITES PARA APRENDER INGLÊS (ATUALIZADO)
-# MELHORES SITES PARA APRENDER INGLÊS (ATUALIZADO)
 
-→ Aumentar o vocabulário: https://lnkd.in/dTHJN3gA
+
+→ Aumentar o vocabulário: https://lnkd.in/dTHJN3gA<br>
 → Aprender com vídeos: https://lnkd.in/dij_tafG
 → Testar seu vocabulário: https://lnkd.in/dxhKfPwH
 → Dicionário de collocations: https://lnkd.in/dZwu6HQG
